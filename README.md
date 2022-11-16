@@ -1,0 +1,2 @@
+# -insertAL
+Anti copyright
